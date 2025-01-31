@@ -1,1 +1,1 @@
-	 Security alert
+Reminder: It's okay! Be Careful and do it with no fuss.
